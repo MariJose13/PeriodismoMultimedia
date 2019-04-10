@@ -1,3 +1,5 @@
+![Granada Sonora, 2018](https://github.com/MariJose13/ViajerasRevolucionarias/blob/master/biografias/Nuestro%20Logo.png)
+
 ###                                                Viajeras Revolucionarias
 
 
